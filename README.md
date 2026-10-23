@@ -1,2 +1,2 @@
-# Bypass-
-Ko dùng được 
+# code tỏ tình 
+xemm thoii 
